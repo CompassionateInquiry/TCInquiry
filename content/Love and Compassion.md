@@ -1,5 +1,6 @@
 Love over hate. Compassion over division.
 
+
 Someone harms you, mentally or physically. Someone acts in a selfish way. Someone gives in to temptation. Someone does a bad thing.
 
 There are 2 options that lead them to doing the bad thing:
